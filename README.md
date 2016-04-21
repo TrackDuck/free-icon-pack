@@ -8,4 +8,4 @@ For more design resources and tips, please follow us at http://blog.trackduck.co
 
 Best wishes,
 
-TrackDuck.com team
+https://trackduck.com/ team
