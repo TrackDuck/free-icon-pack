@@ -1,5 +1,6 @@
-# Free-Icon-Packs
-Woohoo, free icons!
+# Free Icons? Free Icons!
+
+Woohoo, free icon packs!
 
 Feel free to download and use these icon sets as you will. Linking back is not required, but will be highly appreciated ;)
 
